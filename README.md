@@ -1,1 +1,1 @@
-# Scholarship-and-Internship-Management-
+# Scholarship-and-Internship-Management
